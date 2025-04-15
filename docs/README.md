@@ -1,3 +1,4 @@
+MARCO ANTONIO GALINDO BENDEZU: Estudia ciencias de la computación y estoy en 5to ciclo
 
 FARID JACK AQUINO CASTRO: Tengo 18 años, estudio la carrera de Ciencia de Datos y estoy en el 3er ciclo
 
