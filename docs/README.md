@@ -1,1 +1,2 @@
-Marco Antonio Galindo Bendezu : Soy un estudiante de Utec , tengo 19 años y soy de la carrea de ciencia de la computacion , voy en el ciclo 5.
+STEVE ANDY ILDEFONSO SANTOS: Soy estudiante de la carrera de Ciencia de la Computación, tengo 18 años y voy en el tercer ciclo.
+
